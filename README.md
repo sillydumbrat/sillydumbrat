@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sillydumbrat
+- 👀 I’m interested in simple coding, modded games
+- 🌱 I’m currently learning some basic html stuff
+- 💞️ I’m looking to collaborate on nothing at the moment!
